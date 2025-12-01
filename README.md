@@ -27,7 +27,7 @@ This dataset is built to:
 
 ## Related Resources
 
-• Full Report: [Dried Food Market Market](https://www.nextmsc.com/report/dried-food-market-3636)
+• Full Report: [Dried Food Market](https://www.nextmsc.com/report/dried-food-market-3636)
 
 • Press Release: Global Dried Food Market Trends and Forecasts →
 
